@@ -1,1 +1,0 @@
-# Frida-Hern-ndez.-Estocasticos-
